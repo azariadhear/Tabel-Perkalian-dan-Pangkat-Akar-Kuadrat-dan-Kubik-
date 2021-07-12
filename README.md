@@ -1,0 +1,1 @@
+# Tabel-Perkalian-dan-Pangkat-Akar-Kuadrat-dan-Kubik-
